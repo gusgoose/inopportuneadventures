@@ -3,14 +3,12 @@ templateKey: blog-post
 title: 'Travelog: The West Highland Way'
 date: 2019-08-29T10:37:29.623Z
 description: Misadventures on Scotland's most famous walking route.
-featuredpost: false
-featuredimage: /img/home-jumbotron.jpg
 tags:
   - walking
 ---
 **Day 1:**
 
-I have arrived at camp number one, Drymen, which under the circumstances of constant rain all day is ironically named. Walk itself was largely unremarkable, apart from the incessance of the rain, which was. I met a Frenchman called Francois who speaks poor English, and we walked the whole route together. At one point he admitted discomfort due to his boxers rubbing between his legs. Guessing they were cotton, I suggested it would probably be better if he took them off entirely. He was taken aback and clearly something had been lost in translation.
+I have arrived at camp number one - _Drymen_ - which, let me tell you, is ironically named. Walk itself was largely unremarkable, apart from the incessance of the rain, which was. I met a Frenchman called Francois who speaks poor English, and we walked the whole route together. At one point he admitted discomfort due to his boxers rubbing between his legs. Guessing they were cotton, I suggested it would probably be better if he took them off entirely. He was taken aback and clearly something had been lost in translation.
 
 **Day 2:**
 
@@ -80,7 +78,7 @@ Breakfast, and probably race to the finish.
 
 A mountain river passes by our site about 10m to the left, in a small ravine, which makes a nice sound to sleep to. Tomorrow is the final stretch, sadly.
 
-_**Afterword**_: as I reach to scratch my bum, I realise I also have my leggings on backwards. I wonder what else.
+**_Afterword_**: as I reach to scratch my bum, I realise I also have my leggings on backwards. I wonder what else.
 
 **Day 7:**
 
