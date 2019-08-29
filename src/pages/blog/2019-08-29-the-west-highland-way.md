@@ -40,7 +40,7 @@ Showers and Guinness, steak pie and whiskey. Some loose philosophy from Moritz. 
 
 **Day 4:**
 
-Through the (typically) crap, horizontal-rain of the morning a miracle was perceived. As we sat eating our breakfast in the saloon, through the mist I spotted a large backpack and the lumbering gait of a Frenchman. Lo and behold, it was Francois! I called to him and, in a fittingly undramatic manner, he joined us for breakfast and recounted his tale of redemption using a mixture of sign language, English words and noises. It seems he had spend the 24 hours since his apparent demise going all around Scotland looking for new boots. Having succeeded, he had made his own walk of aggression practically overnight, stopping briefly for a nap in the desolate bothy where Mimi almost committed Harakiri) in order to 'make lost time'. The return of Francois. He was lost, but now he is found.
+Through the (typically) crap, horizontal-rain of the morning a miracle was perceived. As we sat eating our breakfast in the saloon, through the mist I spotted a large backpack and the lumbering gait of a Frenchman. Lo and behold, it was Francois! I called to him and, in a fittingly undramatic manner, he joined us for breakfast and recounted his tale of redemption using a mixture of sign language, English words and noises. It seems he had spend the 24 hours since his apparent demise going all around Scotland looking for new boots. Having succeeded, he had made his own _walk of aggression_ practically overnight, stopping briefly for a nap in the desolate bothy where Mimi almost committed Harakiri) in order to 'make lost time'. The return of Francois. He was lost, but now he is found.
 
 When we left the restaurant after breakfast, every one of the camping fields was completely submerged. I think there has been a really rather unusual amount of rain... a hunch which, if it needed further validation, is provided it by the BBC flood warnings for Highland. Pretty good decision not to camp last night. Bodes well for the next nights.
 
@@ -78,7 +78,7 @@ Breakfast, and probably race to the finish.
 
 A mountain river passes by our site about 10m to the left, in a small ravine, which makes a nice sound to sleep to. Tomorrow is the final stretch, sadly.
 
-**_Afterword_**: as I reach to scratch my bum, I realise I also have my leggings on backwards. I wonder what else.
+_**Afterword**_: as I reach to scratch my bum, I realise I also have my leggings on backwards. I wonder what else.
 
 **Day 7:**
 
@@ -106,7 +106,7 @@ We had agreed to set off at 9.30am, so at 11.15 I and Will (who describes himsel
 
 Approximately 10 minutes into the walk and it was clear Will was having trouble with his quiche. I had intended to hold out for longer, but deciding I had no choice, and partially in internal penance for leaving him to certain death on the moor some days previous, I suggested (as if the idea had just struck me) that he put his extraneous effects in _my_ bag. He pondered for a second or two before agreeing that this was indeed a sensible plan of action. 5 minutes later and his jacket and bottle were also in there.
 
-Ben Nevis is Britain's highest mountain, and really does feel like it. Despite topping out at a modest 1300 metres, it's tall enough to host multiple weather conditions at any one time. As with most mountains, there are an infinite number of ways to get up it; but the least technical, and far most popular, route is called the 'mountain track'. Originally built in the late 19th century in order to make supplying the now-defunct observatory at the summit more efficient, it is a 10-mile round-trip that anybody who is moderately fit and a bit unhinged can do in a day.
+Ben Nevis is Britain's highest mountain, and really does feel like it. Despite topping out at a modest 1300 metres, it's tall enough to host multiple weather conditions at any one time. As with most mountains, there are an infinite number of ways to get up it; but the least technical, and by far most popular, route is called the 'mountain track'. Originally built in the late 19th century in order to make supplying the now-defunct observatory at the summit more efficient, it is a 10-mile round-trip that anybody who is moderately fit and a bit unhinged can do in a day.
 
 The first half of the ascent, which takes between 3 and 4 hours in total, provided glorious and far-reaching views over the Highlands. After stopping for quiche, we continued winding our way up the path until we entered cloud. 
 
@@ -116,9 +116,9 @@ The shower was excellent and warm. As it happens, the Glen Nevis campsite is one
 
 I pottered back to the tents, and met Moritz, who then excitedly led me on the proto-spiritual journey to the 'bar and restaurant'.
 
-I looked beyond the 1970s, pine-ceiling'd, pebbledash building I'd been led to, and found nothing else there. The belief I'd been cultivating regarding the cultural closeness and shared artistic heritage of the Germans and English expired immediately. As we entered the bar area, with it's loudly-tartaned floors and upholstery, wipe-clean birch-effect tables and glass cabinets full of faux-old trinkets, I had the sense of being in a Nevada motel. Or possibly the lobby of an overnight passenger ferry (one of those ones which is filled largely with lorry drivers). We sat.
+I looked beyond the 1970s, pine-ceilinged, pebbledash building I'd been led to, and found nothing else there. The belief I'd been cultivating regarding the cultural closeness and shared artistic heritage of the Germans and English expired immediately. As we entered the bar area, with it's loudly-tartaned floors and upholstery, wipe-clean birch-effect tables and glass cabinets full of faux-old trinkets, I had the sense of being in a Nevada motel. Or possibly the lobby of an overnight passenger ferry (one of those ones which is filled largely with lorry drivers). We sat.
 
-Stil mentally preoccupied with the fascinating culture-gap I had clearly discovered between the Germans and what I assumed were all other sane people, I exchanged the typical pleasantries with Moritz. He was sitting on the tartan bench with his arms spread wide atop the backrest, surveying his surroundings with rapt pleasure. He had a look of great, deep satisfaction, the occasional nod of his head signifying that he'd spotted an artex feature that was new to him, or a piece of wood-effect laminate he found particularly pleasing.
+Still mentally preoccupied with the fascinating culture-gap I had clearly discovered between the Germans and what I assumed were all other sane people, I exchanged the typical pleasantries with Moritz. He was sitting on the tartan bench with his arms spread wide atop the backrest, surveying his surroundings with rapt pleasure. He had a look of great, deep satisfaction, the occasional nod of his head signifying that he'd spotted an artex feature that was new to him, or a piece of wood-effect laminate he found particularly pleasing.
 
 I asked him about his day as we sat with a pint of local ale. So enraptured was he, It turned out, with this bar/restaurant, he'd spent almost all day writing about it. His writings were "about this special place" he solemnly explained to me, "and my interactions with it." I wondered with some horror what those interactions might have been, and whether this could be some sort of post-traumatic response to the day on Rannoch moor, but decided not to delve further... a move I still consider one of my best.
 
