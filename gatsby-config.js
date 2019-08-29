@@ -2,7 +2,7 @@ var proxy = require('http-proxy-middleware')
 
 module.exports = {
   siteMetadata: {
-    title: 'Inopportune Adventures',
+    title: 'Inopportune Adventures | Amusing travel writing',
     description:
       'Short, amusing travel writing blog',
   },
