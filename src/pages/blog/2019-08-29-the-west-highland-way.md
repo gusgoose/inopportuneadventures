@@ -8,13 +8,11 @@ featuredimage: /img/home-jumbotron.jpg
 tags:
   - walking
 ---
-**Day 1**
+**Day 1:**
 
 I have arrived at camp number one, Drymen, which under the circumstances of constant rain all day is ironically named. Walk itself was largely unremarkable, apart from the incessance of the rain, which was. I met a Frenchman called Francois who speaks poor English, and we walked the whole route together. At one point he admitted discomfort due to his boxers rubbing between his legs. Guessing they were cotton, I suggested it would probably be better if he took them off entirely. He was taken aback and clearly something had been lost in translation.
 
-
-
-**Day 2**
+**Day 2:**
 
 A brief break in the eternity of drizzle (and worse) that may define this trip, and the march from Drymen (which did produce some) to Salochy campsite near Rowardennon was a slice of heaven. The views from the laboriously-achieved Conic hill expanded over the length of Loch Lomond, and the campsite (which is technically closed, a hard rule to police for a desolate field) is perhaps the most perfect place in Britain. I find myself here with a few other waifs and strays who, like me, considered consulting the website ahead-of-time overly officious. One of them, a German called Moritz, confided in me that he thought he was 'a bit fucked up in the head', which is the bedtime story everybody wants to hear when in the middle of nowhere. However, this somber message is tempered by the presence once again of the four Belgian chaps from Drymen, who seem comfortingly stupid and play Drake at all hours.
 
@@ -24,9 +22,7 @@ Ayala and Daniel, the Israeli siblings who we met cowering in a barn in Drymen a
 
 The stars are out and the waters of Loch Lomond lap against my beach, where they will hopefully stay all night.
 
-
-
-**Day 3**
+**Day 3:**
 
 The Belgian lads woke early two pitches down and decided the best start to the morning was to nominate one of their own to go and stand neck-deep in Loch Lomond for 15 minutes. I suspect this may be the end for them.
 
@@ -44,9 +40,7 @@ Showers and Guinness, steak pie and whiskey. Some loose philosophy from Moritz. 
 
 \* A note on my meeting with Moritz: he entered camp as sun was going down after this first day's walking for him. The campsite, as already described, was technically closed, leaving all but 3 of the 200 or so large pitches completely empty. There was a very small gap between my tent and the gorse bushes that had been planted intermittently to give some shelter, in which Moritz suggested he place his tent. Not wishing to seem unwelcoming, I agreed that that was indeed possible, but that he might wish to consider broadening his horizons. He seemed a little perplexed and ended up settling for the other side of the gorse bushes. I have since learned that Moritz is a philosopher.
 
-
-
-**Day 4**
+**Day 4:**
 
 Through the (typically) crap, horizontal-rain of the morning a miracle was perceived. As we sat eating our breakfast in the saloon, through the mist I spotted a large backpack and the lumbering gait of a Frenchman. Lo and behold, it was Francois! I called to him and, in a fittingly undramatic manner, he joined us for breakfast and recounted his tale of redemption using a mixture of sign language, English words and noises. It seems he had spend the 24 hours since his apparent demise going all around Scotland looking for new boots. Having succeeded, he had made his own walk of aggression practically overnight, stopping briefly for a nap in the desolate bothy where Mimi almost committed Harakiri) in order to 'make lost time'. The return of Francois. He was lost, but now he is found.
 
@@ -58,9 +52,7 @@ At Tyndrum, decided to stay one more night in a hut - tomorrow onwards is barren
 
 More Guinness, whiskey and fish and chips. Tomorrow is the longest stretch, the 30km to Kingshouse, where nothing at all awaits us.
 
-
-
-**Day 5**
+**Day 5:**
 
 Moritz, who is fortunately an optimist as well as a philosopher, summed up the whole of today: "now we are truly one with nature". I imagine that must have been about the point at which the rain started creeping into whichever orifice was the last to give way. It was a very, very wet day.
 
@@ -74,9 +66,7 @@ Apart from two french chaps, and an American called Rob who, when walking, seems
 
 Diving into a warm (and, mercifully, dry) sleeping bag and off to sleep. Tomorrow taking the Devil's Staircase to Kinlochleven. 
 
-
-
-**Day 6**
+**Day 6:**
 
 For the second time I have pitched my tent the wrong way round. Sparing the technical details, what this means is I am likely to wake up with my head covered in water (hopefully) or, if not my head, everything else. Perhaps it is fitting for a trip which will at least in part be defined by wetness, but the promise of poetic symmetry does little to stop me being really pissed off with myself. The three Guinness we had in Kinlochleven (officially the end of today's section) will have done nothing to avert this mistake.
 
@@ -90,11 +80,9 @@ Breakfast, and probably race to the finish.
 
 A mountain river passes by our site about 10m to the left, in a small ravine, which makes a nice sound to sleep to. Tomorrow is the final stretch, sadly.
 
-**_Afterword_**: as I reach to scratch my bum, I realise I also have my leggings on backwards. I wonder what else.
+_**Afterword**_: as I reach to scratch my bum, I realise I also have my leggings on backwards. I wonder what else.
 
-
-
-**Day 7**
+**Day 7:**
 
 Early on in today's proceedings, Moritz (who is a proud German and a sensitive fellow) tentatively asked the question he had clearly been pondering for many kilometres:  W_hat does my language sound like to non-natives?_ Will, who I have come to value for the simplicity of his opinions, replied "pretty camp". 
 
@@ -111,8 +99,6 @@ Several beers and food in one of Fort William's many fleshpots, with the America
 But this is not the end... I somehow managed to book my flight back several days later than required, so Fort William is now my home. Tomorrow night I shall head back to camp at the base of Ben Nevis, about 30 minutes outside of town, in order to attempt an accent if the weather recommends. But not before a large breakfast, coffee relaxation, and tour of the local distillery.
 
 My head is as dry now, upon the freshly laundered bedsheets, as it was this morning. All my other possessions are as wet, sitting limply on the makeshift clothesline between the door and the window.
-
-
 
 **Day 8, Ben Nevis:**
 
@@ -143,8 +129,6 @@ I had a burger, which was very average (though I didn't dare tell Moritz). I rea
 After eating we started chatting to a girl called Anne who was sat at the table opposite ours, and we all got whisky. Anne was from Germany, and Moritz took great pleasure in expressing to her how much he disliked Germans. One whisky turned into three, as we all tried uselessly to postpone the sleep that really did signal the end of the trip.
 
 Moritz and I stood by the tents in the darkness and surveyed the stars. The looming outline of Ben Nevis was faintly discernible about 500 metres away. It was getting colder - maybe 5 degrees. We spent 10 minutes putting the world to rights before heading to sleep.
-
-
 
 **Day 9, Addendum:**
 
